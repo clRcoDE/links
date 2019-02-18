@@ -16,3 +16,4 @@ https://dribbble.com/shots/3754626-Pali-Payment-Dashboard-Concept
 https://dribbble.com/shots/3109216-E-commerce-Dashboard
 
 
+https://medium.com/building-with-react-native/animations-in-react-native-how-to-achieve-great-performance-and-tips-1x04-44fd43996428
