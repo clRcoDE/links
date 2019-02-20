@@ -17,3 +17,10 @@ https://dribbble.com/shots/3109216-E-commerce-Dashboard
 
 
 https://medium.com/building-with-react-native/animations-in-react-native-how-to-achieve-great-performance-and-tips-1x04-44fd43996428
+
+
+https://dribbble.com/shots/5658512-Product-for-Freelancers/attachments
+
+https://dribbble.com/shots/5810691-Dashboard-we-designed-for-FellaFeeds/attachments
+
+https://dribbble.com/shots/5096812-BoxedCMS-Business-Dashboard/attachments
