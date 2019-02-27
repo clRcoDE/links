@@ -26,3 +26,18 @@ https://dribbble.com/shots/5810691-Dashboard-we-designed-for-FellaFeeds/attachme
 https://dribbble.com/shots/5096812-BoxedCMS-Business-Dashboard/attachments
 
 https://dribbble.com/shots/5735279-Poty-Hern-ndez-Shop/attachments
+
+
+
+
+
+***
+
+
+
+https://join.slack.com/t/reactnativepg/shared_invite/enQtNTYyNDUzMjA5NzAyLWI4YWM4YjMyNmU1YWJiYjY1YTNlZWUxZmNjOGI1OGVhMWUyN2FmZjIyZDNjNWU3ODY3ZTNlNzljMzI2MTc4MDE
+
+
+
+
+***
