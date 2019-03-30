@@ -40,4 +40,10 @@ https://join.slack.com/t/reactnativepg/shared_invite/enQtNTYyNDUzMjA5NzAyLWI4YWM
 
 
 
+
+
+https://blog.risingstack.com/8-tips-to-build-better-react-apps-in-2018/
+
+
+
 ***
